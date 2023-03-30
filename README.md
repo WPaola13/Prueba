@@ -12,7 +12,7 @@ La desigualdad social es el resultado de un trato deferencial que recibe una per
 
 ##### **¿Cómo se refleja la desigualdad social dentro del proceso migratorio?**
 
-La desigualdad y la descriminación se hacen presentes por medio edl rechazo (racismo y xenofobia), por ser personas provenientes de una cultura totalmente distinta o por tener caeacterísticas físicas distintas. [García, 2019](http://www.scielo.org.co/scielo.php?script=sci_arttext&pid=S1794-38412019000200063)
+La desigualdad y la descriminación se hacen presentes por medio del rechazo (racismo y xenofobia), por ser personas provenientes de una cultura totalmente distinta o por tener caeacterísticas físicas distintas. [García, 2019](http://www.scielo.org.co/scielo.php?script=sci_arttext&pid=S1794-38412019000200063)
 
 
 
